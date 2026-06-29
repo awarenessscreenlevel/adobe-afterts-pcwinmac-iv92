@@ -1,4 +1,4 @@
-# 
+# آلي Adobe After Effects تأثيرات لـ Mac OS | محدث Adobe After Effects تأثيرات لـ PC Windows. مع تسجيل الماكرو و ترميز الفيديو — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
